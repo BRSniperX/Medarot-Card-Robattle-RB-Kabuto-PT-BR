@@ -59,15 +59,3 @@ Confira se o mod está marcado em **Propriedades → Complementos**.
 
 Tradução de fãs, gratuita e sem vínculo com a Imagineer. É preciso ter o jogo original.
 
-<img width="1681" height="1219" alt="image-1791769633604" src="https://github.com/user-attachments/assets/45d2b6a9-61d4-4ad7-bc8c-17f2924c30f8" />
-<img width="1685" height="1216" alt="image-1791769652073" src="https://github.com/user-attachments/assets/e6ec9fd9-bfb4-43c4-973b-3cc1e41a45be" />
-<img width="1686" height="1217" alt="image-1791769649906" src="https://github.com/user-attachments/assets/58c7e221-3bdb-4b25-98f8-91664589385d" />
-<img width="1684" height="1220" alt="image-1791769643859" src="https://github.com/user-attachments/assets/e26bebf0-a145-45ef-a5fb-9f7638bba090" />
-<img width="1683" height="1224" alt="image-1791769641068" src="https://github.com/user-attachments/assets/207ff293-64b2-4151-a49f-8a9f6ee55f40" />
-<img width="1680" height="1217" alt="image-1791769626474" src="https://github.com/user-attachments/assets/15a46390-cbf5-4ffa-9680-11aadabee518" />
-<img width="1684" height="1221" alt="image-1791769623589" src="https://github.com/user-attachments/assets/58892138-ca40-491c-bcbf-b8b5abf353eb" />
-<img width="1691" height="1225" alt="image-1791769619669" src="https://github.com/user-attachments/assets/cb4abe09-af96-4e1d-85ff-6c24244c3ed2" />
-<img width="1683" height="1216" alt="image-1791769603201" src="https://github.com/user-attachments/assets/e6656617-69e2-4477-ad7d-d643419a5ec1" />
-<img width="1681" height="1219" alt="image-1791769636209" src="https://github.com/user-attachments/assets/5a9a76b0-dd0d-4c5f-9424-d2b6cad00c00" />
-
-
