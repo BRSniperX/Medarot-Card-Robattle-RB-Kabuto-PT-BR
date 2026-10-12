@@ -59,3 +59,14 @@ Confira se o mod está marcado em **Propriedades → Complementos**.
 
 Tradução de fãs, gratuita e sem vínculo com a Imagineer. É preciso ter o jogo original.
 
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-55-14-271" src="https://github.com/user-attachments/assets/2426d547-75e4-4a2a-8f60-c99e483fc4d7" />
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-55-00-728" src="https://github.com/user-attachments/assets/356c45cf-c089-4a40-bdf1-8fcf5fee908d" />
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-54-43-513" src="https://github.com/user-attachments/assets/5a8eb1cc-6adc-4320-9f66-caf31d656736" />
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-53-39-340" src="https://github.com/user-attachments/assets/dc777f52-b1cc-4651-9eac-137648e4270c" />
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-53-29-429" src="https://github.com/user-attachments/assets/ce94cff9-104e-451a-a099-4f627d05c4e2" />
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-53-11-966" src="https://github.com/user-attachments/assets/9bdc81c1-48df-4cec-96cf-66cbf593c852" />
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-52-40-431" src="https://github.com/user-attachments/assets/d78bfa4e-8a0c-4c6a-a608-99eabd1a2afc" />
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-52-27-752" src="https://github.com/user-attachments/assets/864f1cfa-0384-4ff4-8df9-b7585d654bcc" />
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-52-12-392" src="https://github.com/user-attachments/assets/49386571-b4e1-4aa6-9baa-d8f3e07a7bec" />
+<img width="1920" height="1080" alt="0100de4023982000_2026-10-11_22-51-50-756" src="https://github.com/user-attachments/assets/bb2cefb1-891d-4536-bf37-93911201b1f9" />
+
